@@ -73,3 +73,4 @@ BCom to data analyst transition success story https://youtu.be/lqEzYDuTnvU
 
 Resume Guidance
 Data analyst resume review session with template resume: https://www.youtube.com/watch?v=YKPFQUvckU0
+
